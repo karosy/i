@@ -1,9 +1,8 @@
-BH专线版大陆地址：https://exce.sstea.men
+BH专线版大陆地址：(https://inv.easyfastcloud.com/#/register?code=hfhQo14H)
 
 (此网址是大陆网络可以访问的,被墙后会随时更新,邀请好友必须用此网址内的邀请链接哦.)
 
-BH专线版海外地址：https://dreamn.men
-
+BH专线版海外地址：https://inv.easyfastcloud.com/#/register?code=hfhQo14H
 (此网址为被墙网址，变更频率低，套餐没到期的用户连接节点后可以正常访问以及续费，要保持套餐一直不过期哦)
 
 大陆和海外网址里的所有数据都是实时同步的。
